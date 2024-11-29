@@ -1,0 +1,1 @@
+# Projects_from_Gdansk_University_of_Technology
